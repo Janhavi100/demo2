@@ -1,1 +1,2 @@
 dfsdsdjkvnvdjksjsv dsjdnsjvnsjdnvjndvjsvndsKJ
+table crreate kricha 
